@@ -185,8 +185,8 @@ SEO Content Writer | Technology & AI Content
 
 Interested in SEO content writing, website content, product content, technology content, and related remote opportunities.
 
-**GitHub:** [\[Your GitHub Profile\](https://github.com/Paulygons10)]
+**GitHub:** [\[My GitHub Profile\](https://github.com/Paulygons10)]
 
-**LinkedIn:** [[our LinkedIn Profile](https://www.linkedin.com/in/aguilar-paul-christian-d/?isSelfProfile=true)]
+**LinkedIn:** [[My LinkedIn Profile](https://www.linkedin.com/in/aguilar-paul-christian-d/?isSelfProfile=true)]
 
 **Email:** [paulcdaguilar8910@gmail.com]
